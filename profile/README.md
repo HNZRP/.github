@@ -1,4 +1,4 @@
-# Hamilton New Zealand Roleplay
+## Hamilton New Zealand Roleplay
 
 ![Cover Image](./image.png)
 
