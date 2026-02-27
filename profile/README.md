@@ -10,7 +10,7 @@ We offer a wide range of high-quality opportunities, such as staff applications 
 
 ## Socials
 
-- **Discord:** [Invite Link](https://discord.gg/5ft6sRM33k)
+- **Discord:** [Link](https://discord.gg/fM5aXamTUK)
 - **Website:** [Link](https://hnzrp.info/)
 - **TikTok:** [Link](https://tiktok.com/@officialhnzrp)
 - **YouTube:** [Link](https://youtube.com/@hnzrpmedia)
